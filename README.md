@@ -2,7 +2,7 @@
 - 👀 I’m interested in Artificial Intelligence, Machine/Deep Learning
 - 🌱 I’m currently learning Vehicular channel modeling through machine learning
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me kahmad.msee19seecs@seecs.edu.pk
+- 📫 How to reach me engrkhalilahmad10@gmail.com
 - 📫 How to reach me whatsapp 00923465000282
 
 <!---
